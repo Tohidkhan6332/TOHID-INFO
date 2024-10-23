@@ -40,7 +40,7 @@ tohidkhan9050482152@gmail.com
 
 ## Follow me on github
 
-[`Tap Here open`](https://github.com/Tohidkhan6322)
+[`Tap Here open`](https://github.com/Tohidkhan6332)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
