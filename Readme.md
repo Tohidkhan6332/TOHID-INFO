@@ -28,7 +28,9 @@ tohidkhan9050482152@gmail.com
 
 [`Tap Here open`](https://t.me/Tohid_mewati)
 
-## Telegram
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+
+## WhatsApp Contact
 
 [`Tap Here open`](https://wa.me/message/O6KWTGOGTVTYO1)
 
@@ -39,6 +41,13 @@ tohidkhan9050482152@gmail.com
 ## Follow me on github
 
 [`Tap Here open`](https://github.com/Tohidkhan6322)
+
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+
+## Follow me on Facebook 
+
+[`Tap Here open`](https://www.facebook.com/tohidkhan6332)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
