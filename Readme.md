@@ -1,6 +1,13 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 # TOHID_KHAN-INFO
 
+<p align="center">  
+  <a href="https://telegra.ph/file/02901a37c157fa1352aef.jpg">
+    <img alt="Tohid-khan" height="600" src="https://i.imgur.com/MfSTnNS.jpeg">
+    
+  < Loading...
+  <img src="https://github.com/AnderMendoza/AnderMendoza/raw/main/assets/line-neon.gif" width="100%">
+
 ## Whatsapp Channel
 
 [`Tap Here open`](https://whatsapp.com/channel/0029VaGyP933bbVC7G0x0i2T)
