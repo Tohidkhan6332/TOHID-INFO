@@ -3,7 +3,7 @@
 
 <p align="center">  
   <a href="https://telegra.ph/file/02901a37c157fa1352aef.jpg">
-    <img alt="Tohid-khan" height="600" src="https://i.imgur.com/MfSTnNS.jpeg">
+    <img alt="Tohid-khan" height="600" src="https://telegra.ph/file/042cd0b6121a7923fd5d2.jpg">
     
   < Loading...
   <img src="https://github.com/AnderMendoza/AnderMendoza/raw/main/assets/line-neon.gif" width="100%">
