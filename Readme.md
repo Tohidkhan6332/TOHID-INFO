@@ -30,6 +30,24 @@ tohidkhan9050482152@gmail.com
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
+## Telegram Bot
+
+[`Tap Here open`](https://t.me/@Tohidmevati6332_bot)
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+
+## Telegram Movies channel 
+
+[`Tap Here open`](https://t.me/marvelmoviehin)
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+
+## Telegram Support Group 
+
+[`Tap Here open`](https://t.me/marval_movie_hindi_group)
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+
 ## WhatsApp Contact
 
 [`Tap Here open`](https://wa.me/message/O6KWTGOGTVTYO1)
