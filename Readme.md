@@ -32,7 +32,7 @@ tohidkhan9050482152@gmail.com
 
 ## Telegram Bot
 
-[`Tap Here open`](https://t.me/@Tohidmevati6332_bot)
+[`Tap Here open`](https://t.me/Tohidmevati6332_bot)
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
